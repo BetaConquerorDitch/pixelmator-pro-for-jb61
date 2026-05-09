@@ -1,4 +1,4 @@
-
+elite Inkscape for macOS Extension | collaboration + batch processing offers the most advanced Inkscape for macOS extension, with collaboration and batch processing. Ideal for
 
 
 
